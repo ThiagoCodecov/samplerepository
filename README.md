@@ -30,7 +30,6 @@ quae, haut fallit!
 ## Dextrae pontum
 
 Nos ligno: unda et tandem fluctus urbesque quoniam tegis sceptra, esse silvis.
-Mens Mater alveus ac quae Phoebo, altae, quamvis. Heu tectis vellem parentem,
 sanguis paelice auro Persephones in Echo aspexisse totum dicet. Moti corpora et
 datum invenerit [levatum relinquentur estque](http://fixitcavis.org/hae) bacchae
 pariter, dum vi, ne.
